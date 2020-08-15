@@ -7,3 +7,4 @@ The second fish agreed and decided to move out from the pond quickly.
 The third fish, however, mocked at them. He felt that the pond was their home, and they must not leave their home.
 Since the other two fishes were unable to convince the third fish, they left the pond and decided to let him follow his own course of action.
 The next day, the fisherman and his fellows cast their nets and caught plenty of fishes. They also managed to catch the third fish, who had refused to leave the pond, while the other two fishes, who left earlier, were saved.
+The end
